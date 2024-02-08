@@ -1,1 +1,2 @@
-![image](https://github.com/PabloNeri66/InterfaceDeLogin/assets/89610356/4523682e-4dc7-469c-8924-0ea00fbf03fe)
+![image](https://github.com/PabloNeri66/InterfaceDeLogin/assets/89610356/9457420f-8fb3-4a82-8fe8-a04aba0fdfa6)
+
